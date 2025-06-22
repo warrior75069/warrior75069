@@ -1,5 +1,5 @@
 # 📙 About Me:
-B.Sc. Computer Science Graduate || Web Developer || WordPress Developer || Graphic Designer || Programmer
+MCA || B.Sc. Computer Science Graduate || Web Developer || WordPress Developer || Graphic Designer || Programmer
 
 
 ## 🌐 Socials:
